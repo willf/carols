@@ -90,6 +90,39 @@ Sing we joyous, all together.
 Fa-la-la-la-la, la-la-la-la   
 Heedless of the wind and weather.   
 Fa-la-la-la-la, la-la-la-la   
+
+# Deck the Halls With Boston Charlie
+
+Deck us all with Boston Charlie,   
+Walla Walla, Wash., an’ Kalamazoo!   
+Nora’s freezin’ on the trolley,   
+Swaller dollar cauliflower alley-garoo!   
+
+Don’t we know archaic barrel   
+Lullaby Lilla Boy, Louisville Lou?   
+Trolley Molly don’t love Harold,   
+Boola boola Pensacoola hullabaloo!
+
+Bark us all bow-wows of folly,   
+Polly wolly cracker ‘n’ too-da-loo!   
+Donkey Bonny brays a carol,   
+Antelope Cantaloupe, ‘lope with you!
+
+Hunky Dory’s pop is lolly,   
+Gaggin’ on the wagon, Willy, folly go through!   
+Chollie’s collie barks at Barrow,   
+Harum scarum five alarm bung-a-loo!
+
+
+Dunk us all in bowls of barley,   
+Hinky dinky dink an’ polly voo!   
+Chilly Filly’s name is Chollie,   
+Chollie Filly’s jolly chilly view halloo!
+
+Bark us all bow-wows of folly,   
+Double-bubble, toyland trouble! Woof, woof, woof!   
+Tizzy seas on melon collie!   
+Dibble-dabble, scribble-scrabble! Goof, goof, goof!
    
    
 # Do You Hear What I Hear?   
